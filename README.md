@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gunther1-618
-- 👀 I’m interested in leanring, hoops, and finance
+- 👀 I’m interested in learning, hoops, and finance
 - 🌱 I’m currently learning as much as possible 
 
 <!---
